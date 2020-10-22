@@ -1,2 +1,4 @@
-# Skaft-Network
-Skafnnet bot
+# SUBSCRIBE
+# SEADLA 12
+
+# FOR CODING BOT
